@@ -1,7 +1,7 @@
 <p align="center">  Kup is so cool and hot tbh
 
 <p align="center">
-  <img width="300" height="200" src="https://64.media.tumblr.com/7ccdef284d1a69fca07cdeefb825960c/dbc0dae4ef93d847-b6/s400x600/8c06ed56f788d52964a012ce5fbc9e2f11155112.jpg">
+  <img width="400" height="200" src="https://64.media.tumblr.com/7ccdef284d1a69fca07cdeefb825960c/dbc0dae4ef93d847-b6/s400x600/8c06ed56f788d52964a012ce5fbc9e2f11155112.jpg">
 
 
 <p align="center"> ⤹ 𝗜𝗡𝗙𝗢 𝜗𐑞
@@ -21,7 +21,7 @@
     
 <p align="center">〣 . . .#𝟭 TF fan + #𝟭 Stanedge on yt + #𝟭 Littleyvictnam on yt fan! ! 
 <p align="center">  
-"<img width="300" height="200" src="https://64.media.tumblr.com/3025eeffefb8a1a2a7ed29197da1f917/dbc0dae4ef93d847-61/s400x600/e66f48c5a4c5b25cfe564ce0a714bbc5783bcbd3.jpg">
+"<img width="400" height="200" src="https://64.media.tumblr.com/3025eeffefb8a1a2a7ed29197da1f917/dbc0dae4ef93d847-61/s400x600/e66f48c5a4c5b25cfe564ce0a714bbc5783bcbd3.jpg">
 
 <p align="center">  ⤹ 𝗛𝗘𝗔𝗗𝗦 𝗨𝗣 ✦
 
