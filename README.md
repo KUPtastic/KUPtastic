@@ -1,15 +1,14 @@
-<p align="center">   
-$${\color{red}That's \space \color{red} no \space way \space to \space \color{red}travel , \space little \space fella! }$$ 
+<p align="center">  Kup is so cool and hot tbh
 
 <p align="center">
-  <img width="300" height="300" src="https://64.media.tumblr.com/dbe5de15b16b269b685d66da1b5d7b90/5bf070b1d181c5b0-7d/s640x960/1330827dd2369dbb6ba02b52721020873f220cbb.gifv">
+  <img width="300" height="200" src="https://64.media.tumblr.com/7ccdef284d1a69fca07cdeefb825960c/dbc0dae4ef93d847-b6/s400x600/8c06ed56f788d52964a012ce5fbc9e2f11155112.jpg">
 
 
 <p align="center"> ⤹ 𝗜𝗡𝗙𝗢 𝜗𐑞
 
 
 
-  ![](https://64.media.tumblr.com/c30f87aaaaa7e7d055c2f0654e7a0165/fc0b671c9fc45565-5e/s1280x1920/e606c8414646f704a21092e0c52a8085e6d6bf80.gifv) 
+  ![](https://64.media.tumblr.com/e73535b491c9e1f960a6e7b7691ad304/ebc46d3f8a111e49-25/s1280x1920/5dc901c4e3783dc3bfc5dc9b6a503c50ef767af9.pnj) 
 <p align="center"> ⠀♡⃕⠀𝗖𝗗𝗜𝗗 system of 𝟭𝟯𝟬+ ❤  Male terms bodily! ♮ 𝘪𝘳𝘪𝘴𝘩+𝘨𝘦𝘳𝘮𝘢𝘯 𝘮𝘪𝘹! ◞
 <p align="center"> ⊂⠀ Shy iwec! 💧 skittish. OSVTD+OVD/CRD. ⊃
 
