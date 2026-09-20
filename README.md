@@ -16,16 +16,16 @@
 
 
 <p align="center">
-  <img width="300" height="3"SRC="https://64.media.tumblr.com/c30f87aaaaa7e7d055c2f0654e7a0165/fc0b671c9fc45565-5e/s1280x1920/e606c8414646f704a21092e0c52a8085e6d6bf80.gifv">
+  <img width="300" height="5"SRC="https://64.media.tumblr.com/e097bf9b001c102737a83a6a17488e78/ebc46d3f8a111e49-39/s1280x1920/cb2cd2d3c14af0e9f27c462be6c1ec4c820dd0bf.pnj">
 
     
 <p align="center">〣 . . .#𝟭 TF fan + #𝟭 Stanedge on yt + #𝟭 Littleyvictnam on yt fan! ! 
 <p align="center">  
-"<img width="300" height="300" src="https://i.makeagif.com/media/12-16-2015/eMPFiW.gif">
+"<img width="300" height="200" src="https://64.media.tumblr.com/3025eeffefb8a1a2a7ed29197da1f917/dbc0dae4ef93d847-61/s400x600/e66f48c5a4c5b25cfe564ce0a714bbc5783bcbd3.jpg">
 
-  <p align="center">  ⤹ 𝗛𝗘𝗔𝗗𝗦 𝗨𝗣 ✦
+<p align="center">  ⤹ 𝗛𝗘𝗔𝗗𝗦 𝗨𝗣 ✦
 
-![](https://64.media.tumblr.com/c30f87aaaaa7e7d055c2f0654e7a0165/fc0b671c9fc45565-5e/s1280x1920/e606c8414646f704a21092e0c52a8085e6d6bf80.gifv) 
+![](https://64.media.tumblr.com/e73535b491c9e1f960a6e7b7691ad304/ebc46d3f8a111e49-25/s1280x1920/5dc901c4e3783dc3bfc5dc9b6a503c50ef767af9.pnj) 
 
 <p align="center"> ◆ We are a very 𝘀𝗵𝘆 and 𝗻𝗲𝗿𝘃𝗼𝘂𝘀 system, so 𝘀𝗼𝗰𝗶𝗮𝗹 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝗶𝗼𝗻𝘀 can sometimes be a bit scary for us! Because of this, we aren't always up for chatting, and we might be a little awkward when we do. We usually feel much more comfortable and supported in conversations when 𝗼𝘂𝗿 𝗽𝗮𝗿𝘁𝗻𝗲𝗿 is around.  However, we do 𝘁𝗿𝘆 to step out of our bubble every now and then!! especially to talk to people who share our 𝗳𝗮𝗻𝗱𝗼𝗺𝘀! If you'd like to say hi, sending a 𝘄𝗵𝗶𝘀𝗽𝗲𝗿 𝗶𝘀 𝗵𝗶𝗴𝗵𝗹𝘆 𝗲𝗻𝗰𝗼𝘂𝗿𝗮𝗴𝗲𝗱 and much 𝗽𝗿𝗲𝗳𝗲𝗿𝗿𝗲𝗱 over just walking right up to us. We are also very skittish, meaning we might run away or back up a lot. ദ്ദി(˵•̀ ᴗ -˵)
  
