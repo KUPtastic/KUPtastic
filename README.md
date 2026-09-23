@@ -1,27 +1,18 @@
 <p align="center">  Kup is so cool and hot tbh
 
 <p align="center">
-  <img width="400" height="200" src="https://64.media.tumblr.com/7ccdef284d1a69fca07cdeefb825960c/dbc0dae4ef93d847-b6/s400x600/8c06ed56f788d52964a012ce5fbc9e2f11155112.jpg">
+  <img width="400" height="200" src="https://64.media.tumblr.com/3025eeffefb8a1a2a7ed29197da1f917/dbc0dae4ef93d847-61/s400x600/e66f48c5a4c5b25cfe564ce0a714bbc5783bcbd3.jpg">
+<p align="center"> look at our new card ! https://kupstasic.carrd.co/
 
 
-<p align="center"> ⤹ 𝗜𝗡𝗙𝗢 𝜗𐑞
 
 
 
-  ![](https://64.media.tumblr.com/e73535b491c9e1f960a6e7b7691ad304/ebc46d3f8a111e49-25/s1280x1920/5dc901c4e3783dc3bfc5dc9b6a503c50ef767af9.pnj) 
-<p align="center"> ⠀♡⃕⠀𝗖𝗗𝗜𝗗 system of 𝟭𝟯𝟬+ ❤  Male terms bodily! ♮ 𝘪𝘳𝘪𝘴𝘩+𝘨𝘦𝘳𝘮𝘢𝘯 𝘮𝘪𝘹! ◞
-<p align="center"> ⊂⠀ Shy iwec! 💧 skittish. OSVTD+OVD/CRD. ⊃
-
-<p align="center"> ⟡ We ♡ The Immune System (lover!) 
 
 
-<p align="center">
-  <img width="300" height="5"SRC="https://64.media.tumblr.com/e097bf9b001c102737a83a6a17488e78/ebc46d3f8a111e49-39/s1280x1920/cb2cd2d3c14af0e9f27c462be6c1ec4c820dd0bf.pnj">
 
     
-<p align="center">〣 . . .#𝟭 TF fan + #𝟭 Stanedge on yt + #𝟭 Littleyvictnam on yt fan! ! 
-<p align="center">  
-"<img width="400" height="200" src="https://64.media.tumblr.com/3025eeffefb8a1a2a7ed29197da1f917/dbc0dae4ef93d847-61/s400x600/e66f48c5a4c5b25cfe564ce0a714bbc5783bcbd3.jpg">
+<p align="center">〣 . . .#𝟭 TF fan + #𝟭 Stanedge on yt + #𝟭 Littleyvictnam on yt fan! !
 
 <p align="center">  ⤹ 𝗛𝗘𝗔𝗗𝗦 𝗨𝗣 ✦
 
