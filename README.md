@@ -2,7 +2,7 @@
 
 <p align="center">
   <img width="400" height="200" src="https://64.media.tumblr.com/3025eeffefb8a1a2a7ed29197da1f917/dbc0dae4ef93d847-61/s400x600/e66f48c5a4c5b25cfe564ce0a714bbc5783bcbd3.jpg">
-<p align="center"> look at our new card ! https://kupstasic.carrd.co/
+<p align="center"> look at our new card ! https://kuptasic.carrd.co/
 
 
 
