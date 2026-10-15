@@ -13,5 +13,5 @@
     
 <p align="center">〣 . . .#𝟭 TF fan + #𝟭 Stanedge on yt + #𝟭 Littleyvictnam on yt fan! !
 
-![](https://64.media.tumblr.com/a5eda6e42952dac496a56e6caf01f2d5/de8b73b346a9857d-32/s1280x1920/6b74840d7265f5f782b38258be3901795376874b.pnj) 
+![](https://64.media.tumblr.com/22a805004a0d1ead839f73cd73353754/de8b73b346a9857d-76/s1280x1920/db8ca6d0e763220ad845964480f59c89583576e7.pnj) 
 
